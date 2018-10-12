@@ -1,5 +1,5 @@
 ## **ABOUT ME**
-
+![](https://sites.google.com/a/hstat.org/janinez0367sep11/_/rsrc/1537191546797/config/customLogo.gif?revision=4)  
 Janine Zhang
 
 **School**: High School of Telecommunications Arts and Technology   
